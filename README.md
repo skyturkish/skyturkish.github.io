@@ -1,1 +1,1 @@
-# skyturkish.github.io
+itiraf odası nedir nasıl kullanılır
